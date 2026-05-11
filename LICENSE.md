@@ -1,4 +1,4 @@
-#  
+#  Experience adopt me like never before with new adopt me Scripts, the #1 Script. Includes god mode and no cooldown for unbeatable performance.
 
 
 
